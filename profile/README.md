@@ -2,6 +2,6 @@
 
 ## 😎 We are CTF gods 😎
 
-![Untitled](https://user-images.githubusercontent.com/80776324/227294937-a5ce5372-123b-4550-b5aa-894eb47ca14b.png)
+![glitch_2023-3-29_14-57-15](https://user-images.githubusercontent.com/121574230/228528191-d132bbf0-fa7a-45ba-9ac2-dcf8d57cf901.gif)
 
 </div>
